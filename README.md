@@ -40,7 +40,7 @@
 ### 📫 Contact Me
 
 - 📧 Email: [shakhawat.h.1009@gmail.com](mailto:shakhawat.h.1009@gmail.com)
-- 📱 Phone: +8801602083466
+- 📱 Phone: +880 1602-083466
 - 💼 LinkedIn: [linkedin.com/in/shakhawat1009](https://www.linkedin.com/in/shakhawat1009)
 - 🐙 GitHub: [github.com/shakhawat1009](https://github.com/shakhawat1009)
 
